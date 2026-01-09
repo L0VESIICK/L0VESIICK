@@ -26,4 +26,6 @@ _________________________________
 
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/ce2cf42a6e9b79692aa6c87f59d5ad4ac2da60a6/eb0e280253ff7b9739729afe37a618c9.gif) 
                                     
+![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/597a64c5c51ade57b095a1c8bbb35ed5c78b25c9/8c31551a9cf77dc170f9d5e4458b8859.jpg) 
 
+ ^_^                                
