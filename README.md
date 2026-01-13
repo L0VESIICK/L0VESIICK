@@ -2,7 +2,7 @@
                                     
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/d06f3147ed8177d925a591ccd9a06374d3e4bc44/5e0d84d5aa84edf44f40f722ecb8e665.jpg) 
                                     
-  ★  ᴋᴇɪᴛʜʜ |  ᴋᴀɪ |  ᴋᴏʀᴜsᴇᴏ |                                          
+  ★  ᴋᴇɪᴛʜ |  ᴋᴀɪ |  ᴋᴏʀᴜsᴇᴏ |                                          
                                     
 •  ɴᴏɴʙɪɴᴀʀʏ ʙᴜᴛ.. ᴏᴋᴀʏ ʜᴇ/ᴛʜᴇʏ       
 •  ʙɪsᴇxᴜᴀʟ - ᴅᴇᴍɪsᴇxᴜᴀʟ - ᴘᴀɴsᴇxᴜᴀʟ.                                     
