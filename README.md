@@ -1,3 +1,5 @@
+![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/dab1b7c519cc1bbec86f09263b8ea6c7a7e8e420/Untitled147_20260118193107.png) 
+
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/67e62743f3bb9e4c3d03f118ca993942d21ece10/Untitled100_20260105012143.png) 
                                     
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/d06f3147ed8177d925a591ccd9a06374d3e4bc44/5e0d84d5aa84edf44f40f722ecb8e665.jpg) 
