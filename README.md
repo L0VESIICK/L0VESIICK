@@ -1,4 +1,4 @@
-![i
+
 
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/67e62743f3bb9e4c3d03f118ca993942d21ece10/Untitled100_20260105012143.png) 
                                     
