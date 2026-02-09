@@ -1,4 +1,4 @@
 ![image alt](https://github.com/L0VESIICK/L0VESIICK/blob/67114ee3f3faf5135912d0a18f19f22b4662e2ae/500px-Sweetheart_(neutral).gif) 
 
                                      
-$$\color{#FA4771}{\text{" 𝗜 𝗮𝗺 𝘀𝗼 𝗹𝗼𝗻𝗲𝗹𝘆 𝗵𝗲𝗿𝗲... 𝗜 𝗺𝘂𝘀𝘁 𝘃𝗲𝗻𝘁𝘂𝗿𝗲 𝘀𝗼𝗺𝗲𝘄𝗵𝗲𝗿𝗲 𝗲𝗹𝘀𝗲 𝘁𝗼 𝗳𝗶𝗻𝗱 𝗺𝘆 𝘀𝗼𝘂𝗹𝗺𝗮𝘁𝗲 𝗮𝗻𝗱 𝗹𝗶𝘃𝗲 𝗵𝗮𝗽𝗽𝗶𝗹𝘆 𝗲𝘃𝗲𝗿 𝗮𝗳𝘁𝗲𝗿 . ! "}}$$                         
+$$\color{#FA4771}{\text{" 𝗬𝗢𝗨𝗥 𝗦𝗠𝗜𝗟𝗘 𝗖𝗛𝗔𝗥𝗠𝗦 𝗠𝗬 𝗛𝗘𝗔𝗥𝗧 . ! "}}$$                         
